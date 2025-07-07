@@ -1,2 +1,0 @@
-## MAHMUD'UN ÖZGEÇMİŞİ
-
